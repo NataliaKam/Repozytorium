@@ -10,15 +10,15 @@ lub jeden z najlepszych polskich aktorów ;)
 
 ![kot] (http://ro.com.pl/wp-content/uploads/2015/04/kot.jpg)
 
-wróćmy do zwierzat ..
+:wróćmy do zwierzat ..
 
-## Jeśli lubisz koty, to może Ciebie zainteresować 
+## Jeśli lubisz koty, to może Ciebie zainteresować.
 
-[koty24h](http://www.koty.pl/)
+#### <i class="icon-file"></i>[koty24h](http://www.koty.pl/)
 
 Jeśli więc jesteś kociarzem, zasługujesz na kocią piąteczkę!
 
-[film](http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
+#### <i class="icon-file"></i>[film](http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
 
 >**ponieważ:** 
 >* istnieje większe prawdopodobieństwo, że jesteś również indywidualistą
