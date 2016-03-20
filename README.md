@@ -6,7 +6,7 @@
 ![shrek] (http://img3.wikia.nocookie.net/__cb20130211180642/shrek/pl/images/4/41/Kot-w-butach.jpg)
 
 
-lub jeden z najlepszych :1: polskich aktorów :smile:
+lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 
 ![kot] (http://ro.com.pl/wp-content/uploads/2015/04/kot.jpg)
 
@@ -16,7 +16,7 @@ lub jeden z najlepszych :1: polskich aktorów :smile:
 
 #### <i class="icon-file"></i>[koty24h](http://www.koty.pl/)
 
-Jeśli więc jesteś kociarzem, zasługujesz na kocią piąteczkę!
+Jeśli więc jesteś kociarzem, zasługujesz na kocią piąteczkę! :heart_eyes_cat:
 
 #### <i class="icon-file"></i>[film](http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
 
