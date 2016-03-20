@@ -18,7 +18,7 @@ lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 
 Jeśli więc jesteś kociarzem, zasługujesz na kocią piąteczkę! :heart_eyes_cat:
 
-#### <i class="icon-file"></i>[film](http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
+#### <i class="icon-file"></i>[film](&autoplay=1 http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
 
 >**ponieważ:** 
 >* istnieje większe prawdopodobieństwo, że jesteś również indywidualistą
