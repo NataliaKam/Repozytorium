@@ -6,11 +6,11 @@
 ![shrek] (http://img3.wikia.nocookie.net/__cb20130211180642/shrek/pl/images/4/41/Kot-w-butach.jpg)
 
 
-lub jeden z najlepszych polskich aktorów ;)
+lub jeden z najlepszych polskich aktorów :smile:
 
 ![kot] (http://ro.com.pl/wp-content/uploads/2015/04/kot.jpg)
 
-:wróćmy do zwierzat ..
+: wróćmy do zwierzat ..
 
 ## Jeśli lubisz koty, to może Ciebie zainteresować.
 
