@@ -10,7 +10,7 @@ lub jeden z najlepszych polskich aktorów :smile:
 
 ![kot] (http://ro.com.pl/wp-content/uploads/2015/04/kot.jpg)
 
-: wróćmy do zwierzat ..
+**wróćmy do zwierzat ..**
 
 ## Jeśli lubisz koty, to może Ciebie zainteresować.
 
@@ -18,7 +18,7 @@ lub jeden z najlepszych polskich aktorów :smile:
 
 Jeśli więc jesteś kociarzem, zasługujesz na kocią piąteczkę!
 
-#### <i class="icon-file"></i>[film](http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
+#### <i class="icon-file"></i>[film](like http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
 
 >**ponieważ:** 
 >* istnieje większe prawdopodobieństwo, że jesteś również indywidualistą
