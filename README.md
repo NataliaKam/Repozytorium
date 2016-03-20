@@ -14,11 +14,11 @@ wróćmy do zwierzat ..
 
 ## jesli lubisz koty, to może Ciebie zainteresować 
 
-[link] (http://www.koty.pl/)
+[koty24h](http://www.koty.pl/)
 
 Jeśli więc jesteś kociarzem, zasługujesz na kocią piąteczkę!
 
-[2] (http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
+[film](http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
 
 ponieważ 
 1- istnieje większe prawdopodobieństwo, że jesteś również indywidualistą
