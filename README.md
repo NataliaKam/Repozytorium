@@ -10,7 +10,7 @@ lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 
 ![kot] (http://ro.com.pl/wp-content/uploads/2015/04/kot.jpg)
 
-**wróćmy do zwierzat ..**
+**wróćmy do zwierząt ..**
 
 ## Jeśli lubisz koty, to może Ciebie zainteresować.
 
@@ -26,8 +26,8 @@ Jeśli więc jesteś kociarzem, zasługujesz na kocią piąteczkę! :heart_eyes_
 >* jeśli jesteś mężczyzną, masz większe szanse na znalezienie miłości swego życia
 >* o 17% wzrasta szansa na to, że masz wyższe wykształcenie
 >* kociarze mają większą tendencję do bycia skromnymi ludźmi
->* są też w mniejszym stopniu dwulicowi
->* wykazują się większą ufnością...
+>* jesteś w mniejszym stopniu dwulicowi
+>* wykazujesz się większą ufnością...
 
 ##Wiek kota w porównaniu z człowiekiem.
 ![wiek kota](http://pupilki.c0.pl/wp-content/uploads/2010/06/tabela.png)
