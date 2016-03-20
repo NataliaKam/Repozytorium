@@ -1,12 +1,12 @@
 # Repozytorium.
 
-##Kot
+##~~Kot~~
 .. to udomowiony gatunek ssaka z rzędu drapieżnych z rodziny kotowatych.
 
 ![shrek] (http://img3.wikia.nocookie.net/__cb20130211180642/shrek/pl/images/4/41/Kot-w-butach.jpg)
 
 
-lub jeden z najlepszych polskich aktorów :smile:
+lub jeden z najlepszych :1: polskich aktorów :smile:
 
 ![kot] (http://ro.com.pl/wp-content/uploads/2015/04/kot.jpg)
 
@@ -18,7 +18,7 @@ lub jeden z najlepszych polskich aktorów :smile:
 
 Jeśli więc jesteś kociarzem, zasługujesz na kocią piąteczkę!
 
-#### <i class="icon-file"></i>[film](like http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
+#### <i class="icon-file"></i>[film](http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
 
 >**ponieważ:** 
 >* istnieje większe prawdopodobieństwo, że jesteś również indywidualistą
