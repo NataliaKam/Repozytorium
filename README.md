@@ -1,6 +1,6 @@
 # Repozytorium.
 
-##~~Kot~~
+##Kot
 .. to udomowiony gatunek ssaka z rzędu drapieżnych z rodziny kotowatych.
 
 ![shrek] (http://img3.wikia.nocookie.net/__cb20130211180642/shrek/pl/images/4/41/Kot-w-butach.jpg)
