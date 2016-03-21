@@ -12,7 +12,7 @@ lub jeden z najlepszych :thumbsup: polskich aktorów :smile:
 
 **wróćmy do zwierząt ..**
 
-## Jeśli lubisz koty, to może Ciebie zainteresować.
+## Jeśli lubisz koty, To - może Ciebie zainteresować.
 
 #### <i class="icon-file"></i>[koty24h](http://www.koty.pl/)
 
