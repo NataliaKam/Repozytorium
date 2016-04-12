@@ -21,12 +21,12 @@ Jeśli więc jesteś kociarzem, zasługujesz na kocią piąteczkę! :heart_eyes_
 #### <i class="icon-file"></i>[film] (http://vader.joemonster.org/upload/qeg/1056984e6d62d7615.gif)
 
 >**ponieważ:** 
->* istnieje większe prawdopodobieństwo, że jesteś również indywidualistą
->* jesteś bardziej otwarty na nowe doświadczenia
->* jeśli jesteś mężczyzną, masz większe szanse na znalezienie miłości swego życia
->* o 17% wzrasta szansa na to, że masz wyższe wykształcenie
->* kociarze mają większą tendencję do bycia skromnymi ludźmi
->* jesteś w mniejszym stopniu dwulicowi
+>* istnieje większe prawdopodobieństwo, że jesteś również indywidualistą;
+>* jesteś bardziej otwarty na nowe doświadczenia;
+>* jeśli jesteś mężczyzną, masz większe szanse na znalezienie miłości swego życia;
+>* o 17% wzrasta szansa na to, że masz wyższe wykształcenie;
+>* kociarze mają większą tendencję do bycia skromnymi ludźmi;
+>* jesteś w mniejszym stopniu dwulicowi;
 >* wykazujesz się większą ufnością...
 
 ##Wiek kota w porównaniu z człowiekiem.
